@@ -43,6 +43,6 @@ Se complicar para decidir, a sugestão é fazer uma escolha provisória agora e 
 
 Muito bem, uma vez criado, a próxima missão do grupo é definir e divulgar explicitamente suas próprias regras de convivência e o que acontece com quem as desrespeita. Tem [algumas ideias aqui](https://www.etiquetavirtual.com.br/quem-somos/).
 
-Esse é um desafio mais complexo do que as decisões anteriores e certamente não será resolvido nesta aula. A sugestão (novamente) é começar com regras provisórias e programar revisões semanais até que a lista estabilize. E, claro, quando algo novo acontecer, revisitar as regras. Elas podem e devem ser mudadas. Melhor mudar a regra do que ficar justificando as exceções. 
+Esse é um desafio mais complexo do que as decisões anteriores e certamente não será resolvido nesta aula. A sugestão (novamente) é começar com regras provisórias e programar revisões semanais até que a lista se estabilize. E, claro, quando algo novo acontecer, revisitar as regras. Elas podem e devem ser mudadas. Melhor mudar a regra do que ficar justificando as exceções. 
 
 Lembrar sempre: o grupo da turma na rede social é acima de tudo um laboratório para praticarmos a difícil arte da convivência e da organização em grupos. Vamos cuidar bem dele.
